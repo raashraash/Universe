@@ -1,2 +1,3 @@
-# Universe
-the totality of existence
+life
+f*cking hard
+
